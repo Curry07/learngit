@@ -1,1 +1,1 @@
-curry wins the championship
+curry wins three championships
