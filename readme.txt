@@ -1,1 +1,1 @@
-tompson wins three championships
+KD wins two championships
