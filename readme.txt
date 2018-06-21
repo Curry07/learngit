@@ -1,1 +1,1 @@
-curry wins three championships
+tompson wins three championships
