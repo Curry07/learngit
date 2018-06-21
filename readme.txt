@@ -1,1 +1,1 @@
-KD wins two championships
+igdala wins two championships
